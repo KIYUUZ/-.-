@@ -16,7 +16,7 @@
 
 
 
-![220253.gif](https://github.com/user-attachments/assets/0204cd78-244a-40e8-82ff-cb47adddd20a)
+
 
 
 . 
