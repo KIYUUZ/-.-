@@ -24,3 +24,13 @@
 𓆩 
 
 夜神月
+
+![tumblr_84dbc467f4d2065679626572bc947434_6ccb413b_540.gif.webp](https://github.com/user-attachments/assets/7b2f95e8-923c-43d5-8802-f8b04e07ea0f)
+
+
+
+                        
+
+           
+       [tumblr_dd8ad1e74acf88a04a86965332dde8ba_8ee3ad49_540.gif](https://github.com/user-attachments/assets/e6dc5584-c189-42ac-a758-6b5c284d9347)
+
