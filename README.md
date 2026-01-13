@@ -15,8 +15,7 @@
 𝒻𝒶𝓃𝓈 𝐼𝑁𝑇 / 𝑐 * 𝐻 (≧◡≦) .
 
 
-
-
+![chiikawa-usagi.gif](https://github.com/user-attachments/assets/0b9f3452-a731-4cea-8027-6041647a8d22)
 
 
 . 
